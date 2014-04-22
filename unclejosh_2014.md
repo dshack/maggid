@@ -1,3 +1,5 @@
+http://jessthomson.files.wordpress.com/2014/04/haggadah-2014_joshua-howe.pdf
+
 For a number of happy years long ago, our ancestor Jacob and his son Joseph
 lived simple, sustainable lives in the prosperous wine country of Canaan. During a
 famine, however—which we can say with 97.2% certainty was the product of global
